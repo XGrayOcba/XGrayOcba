@@ -6,7 +6,7 @@
 - 🔰 Insure Tunnel Vpn
 - To Download The App copy the link below
 then paste it to google chrome then proceed
-to download the app.
+to download the app link app 👇👇👇
 - 📥 https://url.sikatpinoy.com/1lbC
 
 <!---
