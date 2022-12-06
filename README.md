@@ -4,8 +4,9 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 🔰 Insure Tunnel Vpn
-- To Download The app copy the link below
-then paste it to google chrome
+- To Download The App copy the link below
+then paste it to google chrome then proceed
+to download the app.
 - 📥 https://url.sikatpinoy.com/1lbC
 
 <!---
