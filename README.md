@@ -8,11 +8,11 @@
         - To Download The App copy the link below
         then paste it to google chrome then proceed
         to download the app link app 👇👇👇
-        - 📥 https://url.sikatpinoy.com/1lbC
+        - 📥  https://phfree.xyz/4GUklv
 
         🎮 Mobile Legend Offline Mode
         🔗🔗Link 👇👇👇
-         https://phfree.xyz/ysR9Ouo
+        - 📥  https://phfree.xyz/ysR9Ouo
 
 
 <!---
